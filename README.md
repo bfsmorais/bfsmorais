@@ -16,4 +16,4 @@ Plataformas colaborativas · automação de processos comerciais · widgets e in
 
 ---
 
-📫 [zoho@wyperformance.com](mailto:zoho@wyperformance.com)
+📫 [bruno.f.morais@hotmail.com](mailto:bruno.f.morais@hotmail.com)
